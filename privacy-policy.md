@@ -41,7 +41,7 @@
 
 如您对本隐私政策有任何疑问、意见或建议，请通过以下方式联系我们：
 
-- 邮箱：your@email.com
+- 邮箱：lindviorair@email.com
 
 ---
 
